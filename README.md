@@ -1,1 +1,1 @@
-Project for PAC 294 Yoga 1 class. Spring term 2022
+Project for PAC 294 Spring term 2022
