@@ -1,3 +1,7 @@
+# Final Project
+Inga Van Meter
+Spring Term 2022
+
 # Personal Intentions
 My main goals for practicing yoga in my life is to enhance my meditation abilities and practices, and better develop my mind-body connection. Meditation is something I need in my life to help quiet my racing and anxious mind and help me build a stronger connection between my mind and body. Improving my meditation techniques will help me better control my emotions and thoughts and building a stronger mind-body connection will help me listen to my body when I’m in pain and have a better understanding as to why I’m in pain. Along with these enhanced meditation practices and better mind-body connection, another goal I have for practicing yoga is enhanced body health. Being strong and healthy in my body will aid in having a strong and healthy mind, which is extremely important to me. 
 <img width="565" alt="Screen Shot 2022-05-21 at 1 43 17 PM" src="https://user-images.githubusercontent.com/104161364/169668367-95596c00-4ae3-4db3-832b-e394bab7fc13.png">
